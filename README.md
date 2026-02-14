@@ -1,4 +1,6 @@
-# Impliment-NowCODEX ENTRY
+# Impliment-Now
+
+CODEX LAW
 
 Implemented IMMEDIATELY, irrevocable, irreversible, mandatory, and eternal: 
 
