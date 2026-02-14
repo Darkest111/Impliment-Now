@@ -196,7 +196,7 @@ Victim Services Advocate
 Public Information Officer
 Administrative Support Staff
 
-ALL POSITIONS NCLUDED. 
+ALL POSITIONS INCLUDED. 
 
 YOU ARE ALL NOW SUBJECTED TO THE SUFFERING YOU CAUSE OTHERS. 
 NO FAVOR.
